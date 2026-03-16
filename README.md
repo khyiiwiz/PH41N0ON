@@ -1,5 +1,5 @@
-            ⋆ 𖤓 ⋆˚࿔
-![Image](https://github.com/user-attachments/assets/2e9f7d05-769f-4bfc-a78d-aad24a51a56c)
+            ˗ˏˋ ★ ˎˊ˗
+![Image](https://github.com/user-attachments/assets/c7ba8fa0-d36e-4717-a87a-646f7373c2fe)
 ────────────୨ৎ───────────
 
                 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
